@@ -1,2 +1,1 @@
-# novel
-a short novel
+新写的小说哦~
